@@ -1,0 +1,5 @@
+### About Me
+
+![freia](freialobo.github.io/img/12688166_10154006152934382_4818679546202417908_n (3).jpg)
+
+I’m originally from Mumbai in India, and now live in New York City. I’m a senior at NYU studying Economics and Computer Science. Earlier this year I was named one of [NYU's Up and Comers](http://www.nyunews.com/2016/03/10/freia-lobo/). I help lead [Tech@NYU](http://techatnyu.org). I have interned at YouTube as a product manager, Google Shopping Express as a software engineer and Girls Who Code as a Teaching Assistant. I love [dosas](https://en.wikipedia.org/wiki/Dosa), coffee and cities. I read a lot of [books](http://freialobo.tumblr.com) If you live in New York [let's get coffee] (https://calendly.com/freia/coffee/). You can also email me at freialisa at gmail dot com.
